@@ -1,0 +1,1 @@
+#tjingeling tror jag börjar fatta gerejen nu o det är kuuuul
